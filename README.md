@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Junnieuwu
-- 👀 I’m interested in kpop owo
-- 🌱 I’m currently learning nothing bc im dumb
-- 💞️ I’m looking to collaborate on math, i suck at it pls help-
-- 📫 How to reach me, im on discord ( juneberries<3#8951 ) hehe uwu
+- 👋 Hi, I’m June.
+- 👀 I’m interested in kpop, music.
+- 🌱 I’m currently learning Swedish and Korean.
+- 💞️ My nicknames are : Karina, JJ, Junnie, Jun.
+- 📫 How to reach me : Discord, juneberries<3#0333. 
 
 <!---
 Junnieuwu/Junnieuwu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
